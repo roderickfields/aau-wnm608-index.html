@@ -1,1 +1,1 @@
-# https://roderickfields.github.io/aau-wnm608-index.html/
+#https://artuwnm.com/aau/wnm608/roderickfields
